@@ -21,6 +21,6 @@ Sketch Catch는 사용자의 개인정보를 소중히 여기며, 다음과 같�
 - 기타 로그는 최대 30일간 보관 후 자동 삭제됩니다.
 
 5. 연락처
-문의사항: sketchcatch.team@gmail.com
+문의사항: jihyeon0604@naver.com
 
 본 방침은 2025년 5월 25일부터 시행됩니다.
